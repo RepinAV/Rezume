@@ -9,4 +9,4 @@
 -	Постоянно повышаю свои знания в рабочей области, изучаю новую документацию, регламенты;
 -	Принимаю и следую стандартам поведения, принятым в компании и коллективе.
 
-![](../pKHIxUjIqAWCDFxar4j4divQ32OXzS3RCC3AbnH5FJ8PWUzba5zuOn3WPnWVHYjDe2w0GiBmBbRTMuPAK4Txs_GF.jpg)
+![фото если не загрузилось](../pKHIxUjIqAWCDFxar4j4divQ32OXzS3RCC3AbnH5FJ8PWUzba5zuOn3WPnWVHYjDe2w0GiBmBbRTMuPAK4Txs_GF.jpg)
